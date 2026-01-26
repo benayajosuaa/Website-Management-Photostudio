@@ -14,7 +14,7 @@ _Lead Developer_ <br/>
 _UI/UX Designer_ <br/>
 **Jennifer** — 01082240029  |  [jenniferjen2408@gmail.com](mailto:jenniferjen2408@gmail.com)
 
-_Edit role kamu disini_ <br/>
+_System analyst_ <br/>
 **Darren Keith Kho** — 01082240017  |  [darren05122017@gmail.com](mailto:darren05122017@gmail.com)
 
 _Edit role kamu disini_ <br/>
