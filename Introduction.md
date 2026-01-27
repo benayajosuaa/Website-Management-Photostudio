@@ -17,8 +17,8 @@ _UI/UX Designer_ <br/>
 _System analyst_ <br/>
 **Darren Keith Kho** — 01082240017  |  [darren05122017@gmail.com](mailto:darren05122017@gmail.com)
 
-_Edit role kamu disini_ <br/>
-**Feren Feronika Haryanto** — 01082230016  |  [fernfh127@gmail.com](mailto:fernfh127@gmail.com) <br/>
+_QA Engineer_ <br/>
+**Feren Feronika Haryanto** — 01082230016  |  [lauuurenttt28@gmail.com](mailto:lauuurenttt28@gmail.com) <br/>
 
 <br/>
 
